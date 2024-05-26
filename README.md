@@ -177,8 +177,21 @@ Solnascan Banner & Text Ads ✅
 
 # Contact Information
 
+Crypto FlowX Services is the verified marketing agencies that provides Non-stop-service marketing for all Crypto/nft/web3.0/METAVERSE projects
 
+✅ Services List: https://t.me/FlowX_Servises 
 
+✅ Press Release Package: https://t.me/Press_release1
+
+✅ Past Works (Proof of Work): https://t.me/CryptoFlowX_Services 
+
+----For Getting or Booking Any Servises----
+
+✅ Contact: https://t.me/Martin_Partner ✅ (Contact on Telegram)
+
+✅ You can also contact us through Mail ✅
+
+Pressrelease384@gmail.com & CryptoFlowX@gmail.com
 
 
 
